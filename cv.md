@@ -1,7 +1,7 @@
 # Alexey Shalygin's CV
 
 ## Contact me
-* RS School Discord &#64;shalyshka
+* **RS School Discord** &#64;shalyshka
 * **Telegram** [&#64;shalyshka](https://t.me/shalyshka)
 * **Phone** +7 926 631 00 95
 * **Email** [shalygin1012@gamil.com](shalygin1012@gamil.com)
