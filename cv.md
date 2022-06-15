@@ -4,7 +4,7 @@
 * **RS School Discord** &#64;shalyshka
 * **Telegram** [&#64;shalyshka](https://t.me/shalyshka)
 * **Phone** +7 926 631 00 95
-* **Email** [shalygin1012@gamil.com](shalygin1012@gamil.com)
+* **Email** [shalygin1012@gmail.com](shalygin1012@gmail.com)
 
 # A bit about myself
 For the last 10 years I’ve been producing, researching, negotiating, shooting, managing, tiktoking, and tweeting, in fact, I’m an excellent marketing expert, and now I'm ready to try a new exicting area — IT! I’m passionate about music, architecture, geek stuff, travelling, hiking and swimming. Can you imagine, I crossed the Bosporus in August 2021! Feel my never-stop-learning vibes and let’s dive in together... in a working field, of course.
